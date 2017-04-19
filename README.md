@@ -1,0 +1,2 @@
+# Cangasaikido
+GitHub Pages
